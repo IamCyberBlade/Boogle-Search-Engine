@@ -1,0 +1,1 @@
+I had a group member adament about calling it Boogle. So boogle it became. Boogle is a search engine my team created. It is a search engine designed to find IT material. This is one of the harder but fun projects done. We had to be really creative and I have the distinct memory of creating the logo on photoshop.
